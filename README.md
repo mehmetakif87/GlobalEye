@@ -1,0 +1,1 @@
+hayırlı olsun
